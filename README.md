@@ -12,6 +12,8 @@ https://www.vector.co.jp/vpack/browse/person/an061340.html <br>
 https://github.com/s51517765 <br>
 ・Twitter <br>
 https://twitter.com/s51517765 <br>
+・BOOTH <br>
+https://toriten51517765.booth.pm/ <br>
 ・Mail to <br>
 https://goo.gl/forms/zalyQZOts9UxggQI3 <br>
 
